@@ -1,0 +1,1 @@
+niestety były to dane z produkcji KHGM więc ich nie zamieszczamy.
